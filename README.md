@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Shatetsukaragarshigaraminotsuju
+- 👀 I’m interested in coding and adventuring new things
+- 🌱 I’m currently learning in school
+- 💞️ I’m looking to collaborate on sports, specifically skateboarding, by sponsers
+- 📫 Reach me 
